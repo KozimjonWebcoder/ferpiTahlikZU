@@ -1,1 +1,1 @@
-# ferpiTahlikZU
+# ferpiTahlil_UZ
